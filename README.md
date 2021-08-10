@@ -1,0 +1,2 @@
+# gbbazx
+Otaku no jot@
